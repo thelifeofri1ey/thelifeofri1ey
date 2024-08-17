@@ -2,8 +2,8 @@
 - 👀 I’m interested in penetration testing, astrology, life hacks, pharmacology, the occult & other things.
 - 🌱 I’m learning everyday
 - 📫 
-- 😄 Pronouns: ...
-- ⚡ I'm O- (Universal Donor)
+- 😄 Optimist
+- ⚡ O- (Universal Donor)
 
 <!---
 thelifeofri1ey/thelifeofri1ey is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
