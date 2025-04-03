@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @thelifeofri1ey
-- 👀 I’m interested in penetration testing, astrology, life hacks, pharmacology, the occult & other things.
-- 🌱 I’m learning everyday
-- 📫 
+- 👀 penetration testing; astrology; life hacks; pharmacology; the occult & other things.
+- ♐️ Sagittarius
+- 📚🙇🏻‍♂ Failing to learn is failing to live
 - 😄 Optimist
 - ⚡ O- (Universal Donor)
 
